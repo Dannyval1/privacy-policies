@@ -57,7 +57,7 @@ Podemos actualizar esta Política de Privacidad ocasionalmente. Te notificaremos
 
 Si tienes preguntas sobre esta Política de Privacidad, puedes contactarnos en:
 
-**Email:** [dannydev.apps1@gmail.com]
+**Email:** dannydev.apps1@gmail.com
 
 ---
 
